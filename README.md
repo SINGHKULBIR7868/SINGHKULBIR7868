@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm kulbir Singh
+# 💫 Hi 👋, I'm Kulbir Singh
 **A passionate Geoscience Engineer || Data Analyst || Oil and Gas Consultant**
 
 Email Me 👉 ✉️ **geophy1821kulbir@kuk.ac.in** For Collaboration/Project or Anything Else. 😊😊
