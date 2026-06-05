@@ -10,7 +10,7 @@ Email Me 👉 ✉️ **geophy1821kulbir@kuk.ac.in** For Collaboration/Project or
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** geophy1821kulbir@kuk.ac.in
 - 😄 **Pronouns:** Kulbir 
-- ⚡ **Fun fact:** I love Geophysics and Geophysics Love Me
+- ⚡ **Fun fact:** I treat messy, uncalibrated datasets like tectonic fault lines—I fix the slips and relieve the pressure.
 
 ## 🔗 I am a Dynamic Geophysicist. 😊😊
 
