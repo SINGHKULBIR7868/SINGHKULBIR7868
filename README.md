@@ -4,7 +4,7 @@
 Email Me 👉 ✉️ **geophy1821kulbir@kuk.ac.in** For Collaboration/Project or Anything Else. 😊😊
 
 - 🔭 **I’m currently working on:** Rajasthan and Ganga Punjab 2D Seismic Processing Project
-- 🌱 **I’m currently learning:** Python From PW Skills
+- 🌱 **I’m currently learning:** Ml From PW Skills
 - 👯 **I’m looking to collaborate on:** Data Analyst
 - 🤔 **I’m looking for help with:** Geophysical Analyst
 - 💬 **Ask me about:** Collaboration, Tech Support
